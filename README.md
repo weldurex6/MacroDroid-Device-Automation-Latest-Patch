@@ -1,0 +1,1 @@
+# MacroDroid-Device-Automation-Latest-Patch
